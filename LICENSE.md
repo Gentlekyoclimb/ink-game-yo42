@@ -1,4 +1,4 @@
-
+smart ink game Scripts is the best ink game Script, featuring auto-farm and speed. Safe and powerful for all your needs.
 
 
 
